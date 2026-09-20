@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>    👋 Hi, I’m sujal gayakwad<br>    👀 I’m interested in Coding Stuff<br>    🌱 I’m currently learning Cyber Security<br>    📫 How to reach me sujalgayakwad119@gmail.com@gmail.com<br>    ⚡ Fun fact: I Am Engineering Student. @Cambridge Institute Of Technology<br><br>
+<br>    👋 Hi, I’m sujal gayakwad<br>    👀 I’m interested in Coding Stuff<br>    🌱 I’m currently learning Cyber Security<br>    📫 How to reach me sujalgayakwad119@gmail.com<br>    ⚡ Fun fact: I Am Engineering Student. @Cambridge Institute Of Technology<br><br>
 
 
 ## 🌐 Socials:
