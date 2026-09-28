@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I’m Sujal Gayakwad 👋<br>💻 Turning ideas into websites, apps & digital experiences<br>🎨 Passionate about UI/UX, Web Development & Creative Design<br>🚀 Currently building projects, learning new technologies & breaking things along the way<br>🧠 Exploring Full-Stack Development, Cyber Security & AI<br>⚡ Engineering student who believes every problem can be solved with enough code<br>📫 Reach me: [sujalgayakwad!!9@gmail.com](mailto:sujalgayakwad119@gmail.com)<br>🎓 Cambridge Institute of Technology<br>
+Hi, I’m Sujal Gayakwad 👋<br>💻 Turning ideas into websites, apps & digital experiences<br>🎨 Passionate about UI/UX, Web Development & Creative Design<br>🚀 Currently building projects, learning new technologies & breaking things along the way<br>🧠 Exploring Full-Stack Development, Cyber Security & AI<br>⚡ Engineering student who believes every problem can be solved with enough code<br>📫 Reach me: [sujalgayakwad119@gmail.com](mailto:sujalgayakwad119@gmail.com)<br>🎓 Cambridge Institute of Technology<br>
 
 
 ## 🌐 Socials:
